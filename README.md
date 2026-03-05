@@ -1,4 +1,7 @@
 ## Hi there 👋
+I am study CJCU  Department of shipping and transportation management.
+My goals is get toeic 700 and become a cabin crew.
+I interest aviation.
 
 <!--
 **114b05927-Hsiang/114b05927-Hsiang** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
